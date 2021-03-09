@@ -1,2 +1,2 @@
 # LoginForm
-a revolution in the description of beauty :D ☘
+a revolution in the meaning of beauty :D ☘
